@@ -1,1 +1,1 @@
-Register For A Private Intensive
+Register For Private Intensive
